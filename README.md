@@ -64,7 +64,7 @@ Bilgisayarda alıştığınız kalite, Android'de özgürce kullanılabilir hale
 
 > Sorular, öneriler ya da katkı için bize ulaşın:
 
-- 🌍 Discord: [https://ig.me/j/AbYeAEhX72bM0fDK/]( Instagram grup)
+- 🌍 Instagram: [https://ig.me/j/AbYeAEhX72bM0fDK/ ]( Instagram grup)
 - 📧 E-posta: ademyalcin479@gmail.com
 - 💬 GitHub Issues üzerinden geri bildirim bırakabilirsiniz
 
