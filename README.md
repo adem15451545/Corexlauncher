@@ -94,6 +94,7 @@ Eğer bu projeyi beğendiysen:
 Instagram
 https://www.instagram.com/adema1545
 TikTok
+
 tiktok.com/@ademyalcin444
 YouTube 
 https://youtube.com/@stickwar1545
