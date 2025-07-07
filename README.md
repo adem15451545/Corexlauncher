@@ -91,14 +91,13 @@ Eğer bu projeyi beğendiysen:
 - 🤝 Geri bildirim gönder
 
 - 📣 sosyal medya
-Instagram
+Instagram:
 https://www.instagram.com/adema1545
-TikTok
-
+TikTok:
 tiktok.com/@ademyalcin444
-YouTube 
+YouTube :
 https://youtube.com/@stickwar1545
-Telegram
+Telegram:
 https://t.me/+DmSJcq5izrdiOTY0
 
 ---
